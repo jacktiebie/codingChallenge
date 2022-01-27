@@ -30,5 +30,5 @@ Room for improvement:
 
 
 ## Contact
-Completed by [@flynerdpl](linkedin.com) - feel free to contact me!
+Completed by [@jacktiebie](linkedin.com) - feel free to contact me!
 
